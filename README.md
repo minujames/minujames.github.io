@@ -1,1 +1,0 @@
-# minujames.github.io
